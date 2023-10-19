@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Jabluszko45
-- 🔧 Discord, Jablko4%_
+- 🔧 Discord, Jablko45_
